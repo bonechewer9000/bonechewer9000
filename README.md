@@ -1,8 +1,12 @@
-:bone:  :: RAZOR , , XINGQiU ! he/it/woof/pup/gutz. . .
+🗯  FREMINET  !
 
-     .  .  .non-human [endel]   !    SEMI-NV ! :: 🐾: 
+tsukasa tenma brainrot ! !!
 
-:fallen_leaf:  :: RAZOR/XINGQIU IRL! /srs
+ o(>ω<)o
+
+  UID 727153685
+
+https://fremmi.carrd.co
 
 <!---
 bonechewer9000/bonechewer9000 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
